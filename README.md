@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hello, We are the Development Team of ThemeLuxury. We have over 6 years of experience in designing, developing and customizing WordPress.
+We are the Development Team of ThemeLuxury. We have over 6 years of experience in designing, developing and customizing WordPress.
 
 Premium WordPress Themes and Bootstrap Templates developed by ThemeLuxury will bring you a website with a beautiful, modern, fully responsive, easy to use, and flexible, customizable interface.
 
