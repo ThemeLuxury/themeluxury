@@ -8,39 +8,26 @@ All products are updated and supported entirely for free for one year. 30-day mo
 
 👏 Stay connected with us on:
 
+https://www.facebook.com/themeluxury
+
+https://twitter.com/ThemeLuxury
+
+https://www.instagram.com/themeluxury/
+
+https://www.pinterest.com/themeluxury
+
+https://www.behance.net/themeluxury
+
+https://github.com/ThemeLuxury
+
+https://www.youtube.com/channel/UCu5HWVT5kdyhw_JLZImmYTA
+
+https://www.linkedin.com/in/themeluxury/
+
+https://dribbble.com/themeluxury
+
 https://themeluxury.com/bootstrap-templates/
 
 https://themeluxury.com/
 
 https://themeluxury.com/themes/movieasap-wordpress-movie-theme/
-
-https://www.youtube.com/channel/UCu5HWVT5kdyhw_JLZImmYTA
-
-https://www.scoop.it/u/themeluxury
-
-https://en.calameo.com/accounts/6546918
-
-https://issuu.com/themeluxury
-
-https://themeluxury.tumblr.com/
-
-https://gitlab.com/ThemeLuxury
-
-https://www.eventbrite.com/o/themeluxury-32084636235
-
-https://weheartit.com/themeluxury
-
-https://fliphtml5.com/homepage/dwozx
-
-https://500px.com/p/themeluxury?view=photos
-
-https://speakerdeck.com/themeluxury
-
-https://angel.co/u/theme-luxury
-
-https://flipboard.com/@ThemeLuxury
-
-https://www.goodreads.com/user/show/126482479-theme-luxury
-
-https://www.indiegogo.com/individuals/25444291
-
